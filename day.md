@@ -28,7 +28,7 @@ Keep in mind, this is what I normally do **BEFORE** going to bed (Hopefully no l
 
 ## Author's Note
 
-For some who might be curious a bit about the last bits, I usually play video games on a gaming PC or my Nintendo Switch (**Mostly** single player RPGs, but I have been getting into Monster Hunter games lately. So I might branch out into multiplayer games a little more.)
+For some who might be curious a bit about what games I play and what system(s) I use, I usually play video games on a gaming PC or my Nintendo Switch (**Mostly** single player RPGs, but I have been getting into Monster Hunter games lately. So I might branch out into multiplayer games a little more.)
 
 Also, here's a picture of one of the family pets. Enjoy!
 
