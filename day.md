@@ -18,7 +18,18 @@
 
 ## Evenings
 
-In the evenings, I usually check to see if I need to help make dinner for the family and talk with them to see how their day was.
-If I end up with free time, I check and see if I can play any video games to wind down for the day.
-If I'm not playing video games, I'm either listening to music or checking out videos from YouTube.
-After that, I go to bed **no later than midnight**.
+My Evening Activities consist of the following:
+- Making dinner *with* the family 
+- Talk *with* the family about their day (My folks **REALLY** want to make sure I spend enough time with them)
+- Play Video Games if I have free time to do so
+Keep in mind, this is what I normally do **BEFORE** going to bed (Hopefully no later than *Midnight*)
+
+---
+
+## Author's Note
+
+For some who might be curious a bit about the last bits, I usually play video games on a gaming PC or my Nintendo Switch (**Mostly** single player RPGs, but I have been getting into Monster Hunter games lately. So I might branch out into multiplayer games a little more.)
+
+Also, here's a picture of one of the family pets. Enjoy!
+
+![family cat](img/cat2.jpg)
